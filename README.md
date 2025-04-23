@@ -80,7 +80,7 @@ Feel free to explore the repository and reach out if you have any questions or f
 
 ## Connect with Me
 
-- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/shakala-vengala-reddy-52aba5288)
+- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/alla-purnachandrareddy-049940274)
 - GitHub: [GitHub Profile](https://github.com/apurnachandrareddy11
 
 ---
